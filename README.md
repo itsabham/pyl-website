@@ -5,5 +5,6 @@ https://discord.gg/4fZWe7gzAt
 
 ![Practice Your Language](https://invidget.switchblade.xyz/4fZWe7gzAt?theme=light)
 
-# Website
+# Socials
 https://langs.one
+https://instagram.com/practiceyourlanguage
