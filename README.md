@@ -11,3 +11,5 @@ https://langs.one
 https://instagram.com/practiceyourlanguage
 
 https://www.youtube.com/channel/UC-8UXeIkkT0aLDbbFB8u0ag
+
+https://twitter.com/langs_one
