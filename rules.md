@@ -4,8 +4,7 @@
 1) We expect all members of the community to follow Discord’s terms of service, including the age limitations. If you are under the age of 13, you should not be using this website! Terms of service violations will result in an instantaneous ban. If you are interested in reading the ToS for yourself, here is a link: https://discord.com/terms.
 
 2) This server is meant to be an inclusive and welcoming environment for language learners from all over the world. Therefore, we prioritize the comfort of our community members. Any sort of suspicious behavior by a user that makes community members feel unsafe or uncomfortable, even in DMs, should be reported to the server staff team. The offender will then receive a mute or a ban upon their first infraction, depending on the severity of the behavior. A second infraction will result in a ban.
-
-  We take harassment seriously. Racist, sexist, homophobic, transphobic, xenophobic, or violent and/or threatening comments will not be tolerated. This includes using racial slurs, even as a “joke.” Depending on the severity of the infraction, the first infraction will result in a mute or ban. Any further infraction will result in a definite ban.
+We take harassment seriously. Racist, sexist, homophobic, transphobic, xenophobic, or violent and/or threatening comments will not be tolerated. This includes using racial slurs, even as a “joke.” Depending on the severity of the infraction, the first infraction will result in a mute or ban. Any further infraction will result in a definite ban.
 
 3) Inappropriate language, including swearing, is allowed but should be kept to a minimum. However, excessive and prolonged swearing, especially if directed towards or at another member of the community, is grounds for a warning on the first infraction, and a mute on the second.
 ​
